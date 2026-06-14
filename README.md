@@ -1,0 +1,1 @@
+# vrc_vketSummer2026-assets
